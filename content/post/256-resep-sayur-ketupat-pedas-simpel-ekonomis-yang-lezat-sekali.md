@@ -1,0 +1,128 @@
+---
+description: "Resep Sayur Ketupat Pedas Simpel Ekonomis yang Lezat Sekali"
+title: "Resep Sayur Ketupat Pedas Simpel Ekonomis yang Lezat Sekali"
+slug: 256-resep-sayur-ketupat-pedas-simpel-ekonomis-yang-lezat-sekali
+category: Uncategorized
+date: 2022-11-19T09:45:00.867Z
+image: https://img-global.cpcdn.com/recipes/5fdaec7da9a91a0a/680x482cq70/sayur-ketupat-pedas-simpel-ekonomis-foto-resep-utama.jpg
+hideToc: false
+enableToc: true
+enableTocContent: false
+thumbnail: https://img-global.cpcdn.com/recipes/5fdaec7da9a91a0a/680x482cq70/sayur-ketupat-pedas-simpel-ekonomis-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/5fdaec7da9a91a0a/680x482cq70/sayur-ketupat-pedas-simpel-ekonomis-foto-resep-utama.jpg
+author: Admin
+authorAv: notfound
+ratingvalue: 4.8
+reviewcount: 20
+recipeingredient:
+- "2 buah labu siam"
+- "5 lonjor kacang panjang"
+- "1/2 papan tempe"
+- "1 batang daun bawang"
+- "1 buah santan instan 65 mL"
+- "1 L air"
+- "1/2 sdm gula pasir optional"
+- " Garam dan penyedap"
+- " Minyak untuk menumis"
+- "2 lembar daun salam"
+- "2 batang sereh geprek"
+- "1 ruas lengkuas"
+- "5 siung bawang merah"
+- "3 siung bawang putih"
+- "15 buah cabe merah keriting optional"
+- "5 buah cabe rawit merah optional"
+- "2 butir kemiri"
+- "1/2 sdt ketumbar"
+- "1/2 sdt ebi"
+- " Bawang Goreng"
+recipeinstructions:
+
+- "Selesai dan siap dinikmati!"
+categories:
+- Resep
+tags:
+- sayur
+- ketupat
+- pedas
+
+katakunci: sayur ketupat pedas 
+nutrition: 282 calories
+recipecuisine: Indonesian
+preptime: "PT26M"
+cooktime: "PT56M"
+recipeyield: "3"
+recipecategory: Dessert
+
+---
+
+
+
+
+Sedang mencari inspirasi resep sayur ketupat pedas simpel ekonomis yang unik? Cara membuatnya sangat tidak terlalu sulit namun tidak gampang juga. Jika keliru mengolah maka hasilnya tidak akan memuaskan dan bahkan tidak sedap. Padahal sayur ketupat pedas simpel ekonomis yang enak harusnya sih memiliki aroma dan cita rasa yang bisa memancing selera Kita.
+
+
+
+
+
+Banyak hal yang sedikit banyak mempengaruhi kualitas rasa dari sayur ketupat pedas simpel ekonomis, pertama dari jenis bahan, selanjutnya pemilihan bahan segar dan Bagus, sampai cara membuat dan menyajikannya. Tak perlu pusing jika hendak menyiapkan sayur ketupat pedas simpel ekonomis enak,      asal sudah tahu triknya maka hidangan ini dapat jadi sajian istimewa.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Resep Sayur Ketupat Pedas Simpel Ekonomis. Lihat juga cara membuat Sayur Ketupat Pedas Simpel Ekonomis dan masakan sehari-hari lainnya. Menyantap hidangan Lebaran belum lengkap rasanya tanpa kehadiran sayur ketupat.
+
+
+
+
+
+
+Berikut ini ada beberapa cara mudah dan praktis yang dapat diterapkan untuk mengolah sayur ketupat pedas simpel ekonomis yang siap dikreasikan. Anda dapat membuat Sayur Ketupat Pedas Simpel Ekonomis memakai 20 bahan dan 0 langkah pembuatan. Berikut ini cara dalam menyiapkan hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang diperlukan dalam pembuatan Sayur Ketupat Pedas Simpel Ekonomis:
+
+1. Siapkan 2 buah labu siam
+1. Persiapkan 5 lonjor kacang panjang
+1. Persiapkan 1/2 papan tempe
+1. Siapkan 1 batang daun bawang
+1. Ambil 1 buah santan instan (65 mL)
+1. Gunakan 1 L air
+1. Sediakan 1/2 sdm gula pasir (optional)
+1. Persiapkan  Garam dan penyedap
+1. Siapkan  Minyak untuk menumis
+1. Siapkan 2 lembar daun salam
+1. Gunakan 2 batang sereh, geprek
+1. Ambil 1 ruas lengkuas
+1. Siapkan 5 siung bawang merah
+1. Ambil 3 siung bawang putih
+1. Siapkan 15 buah cabe merah keriting (optional)
+1. Sediakan 5 buah cabe rawit merah (optional)
+1. Ambil 2 butir kemiri
+1. Persiapkan 1/2 sdt ketumbar
+1. Siapkan 1/2 sdt ebi
+1. Ambil  Bawang Goreng
+
+
+Resep Sayur Gurih Labu Siam Foto: detikcom. Sayur ketupat khas Betawi biasanya menggunakan labu siam sebagai bahan utamanya. Jika air sudah mendidih, masukkan sayur; Masukkan udang, garam dan gula. Jika sudah sesuai selera, masukkan santan. 
+
+<!--inarticleads2-->
+
+##### Cara memasak Sayur Ketupat Pedas Simpel Ekonomis:
+
+
+1. Selesai dan siap dihidangkan!
+
+Tambahkan bawang goreng untuk topping; Itu dia deretan resep sayur ketupat lebaran beragam varian yang sudah dihadirkan sama Diadona. Tapi pernah nggak kamu coba berkreasi membuat sayur pedas? Meski dipadukan dengan cabai, bukan berarti kesegarannya hilang. Di Padang, ada menu ketupat sayur yang disajikan dengan daging, pepaya muda, buncis, telur ayam, nangka muda dan kerupuk merah. Ada pun bumbu ketupat sayur yang digunakan cukup sederhana seperti bawang putih, ketumbar, kemiri, dan daun salam. 
+
+Gimana nih? Mudah bukan? Itulah cara menyiapkan sayur ketupat pedas simpel ekonomis yang bisa kamu lakukan di rumah. Selamat mencoba!

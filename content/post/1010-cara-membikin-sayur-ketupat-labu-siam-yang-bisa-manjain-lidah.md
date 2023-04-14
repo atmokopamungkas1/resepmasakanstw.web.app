@@ -1,0 +1,120 @@
+---
+description: "Cara Membikin Sayur Ketupat Labu Siam yang Bisa Manjain Lidah"
+title: "Cara Membikin Sayur Ketupat Labu Siam yang Bisa Manjain Lidah"
+slug: 1010-cara-membikin-sayur-ketupat-labu-siam-yang-bisa-manjain-lidah
+category: Uncategorized
+date: 2022-10-10T05:36:38.758Z
+image: https://img-global.cpcdn.com/recipes/67e167c7b46f098a/680x482cq70/sayur-ketupat-labu-siam-foto-resep-utama.jpg
+hideToc: false
+enableToc: true
+enableTocContent: false
+thumbnail: https://img-global.cpcdn.com/recipes/67e167c7b46f098a/680x482cq70/sayur-ketupat-labu-siam-foto-resep-utama.jpg
+cover: https://img-global.cpcdn.com/recipes/67e167c7b46f098a/680x482cq70/sayur-ketupat-labu-siam-foto-resep-utama.jpg
+author: Admin
+authorAv: notfound
+ratingvalue: 4.6
+reviewcount: 24
+recipeingredient:
+- "3 buah labu siam ukuran sedang"
+- "3 ikat kacang panjang"
+- "2 ons udang segar kupas"
+- "1 papan petai kalau suka"
+- "200 cc santan kara"
+- "secukupnya garam"
+- " gula pasir 2 SM kurleb"
+- " penyedap rasa bila suka"
+- "5 buah cabe merah besar"
+- "5 buah cabe merah keriting"
+- "5 butir bawang putih"
+- "8 butir bawang merah"
+- "1/2 buah "
+- " minyak untuk menumis"
+- "1 ruas lengkuas digeprek"
+- "3 lembar daun salam"
+recipeinstructions:
+
+- "Selesai dan siap dihidangkan!"
+categories:
+- Resep
+tags:
+- sayur
+- ketupat
+- labu
+
+katakunci: sayur ketupat labu 
+nutrition: 232 calories
+recipecuisine: Indonesian
+preptime: "PT20M"
+cooktime: "PT52M"
+recipeyield: "1"
+recipecategory: Lunch
+
+---
+
+
+
+
+Sedang mencari ide resep sayur ketupat labu siam yang unik? Cara membuatnya sangat tidak terlalu sulit namun tidak gampang juga. Jika salah mengolah maka hasilnya tidak akan memuaskan dan bahkan tidak sedap. Padahal sayur ketupat labu siam yang enak harusnya sih punya aroma dan rasa yang dapat memancing selera Kita.
+
+
+
+
+
+Banyak hal yang sedikit banyak berpengaruh terhadap kualitas rasa dari sayur ketupat labu siam, mulai dari jenis bahan, lalu pemilihan bahan segar dan Bagus, sampai cara membuat dan menghidangkannya. Tak perlu pusing kalau hendak menyiapkan sayur ketupat labu siam yang enak,      asal sudah tahu triknya maka hidangan ini dapat menjadi suguhan spesial.
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+Resep sayur ketupat labu siam juga dipadu dengan santan segar yang kental dan encer. Selain labu siam, sayur ketupat juga bisa dipadu dengan sayuran lain seperti kacang panjang, daun melinjo muda dan kulit melinjo merah. Untuk menghilangkan getah labu siam, sebaiknya setelah dipotong irisan labu siam ditaburi dengan garam lalu dibilas dengan air.
+
+
+
+
+
+
+Di bawah ini ada beberapa cara mudah dan praktis yang dapat diterapkan untuk mengolah sayur ketupat labu siam yang siap dikreasikan. Kamu bisa membuat Sayur Ketupat Labu Siam menggunakan 16 bahan dan 0 langkah pembuatan. Berikut ini cara dalam membuat hidangannya.
+
+<!--inarticleads1-->
+
+##### Bahan-bahan dan bumbu yang wajib ada dalam menyiapkan Sayur Ketupat Labu Siam:
+
+1. Siapkan 3 buah labu siam ukuran sedang
+1. Siapkan 3 ikat kacang panjang
+1. Gunakan 2 ons udang segar kupas
+1. Sediakan 1 papan petai (kalau suka)
+1. Persiapkan 200 cc santan kara
+1. Siapkan secukupnya garam
+1. Gunakan  gula pasir 2 SM (kurleb)
+1. Gunakan  penyedap rasa (bila suka)
+1. Persiapkan 5 buah cabe merah besar
+1. Siapkan 5 buah cabe merah keriting
+1. Sediakan 5 butir bawang putih
+1. Siapkan 8 butir bawang merah
+1. Gunakan 1/2 buah 🍅
+1. Persiapkan  minyak untuk menumis
+1. Persiapkan 1 ruas lengkuas digeprek
+1. Sediakan 3 lembar daun salam
+
+
+Masukkan lengkuas, daun salam, garam, dan gula pasir. Setelah mendidih, masukkan labu siam, daun bawang, dan tahu. Selain opor ayam, lontong atau ketupat lebaran pun akan sangat cocok jika dilengkapi dengan sayur labu siam. Nah, mengingat sebenatar lagi kita akan menyambut hari raya lebaran, maka anda bisa membuat sayur labu siam ini di rumah dengan mudah. 
+
+<!--inarticleads2-->
+
+##### Instruksi untuk membuat Sayur Ketupat Labu Siam:
+
+
+1. Selesai dan siap dihidangkan!
+
+Rasanya yang enak dan gurih akan memanjakan lidah anda, oleh sebab itu anda harus siap-siap dibuat ketagihan. Selain opor ayam dan rendang, sayur labu siam dengan kuah santan juga identik sebagai pendamping ketupat di hari raya Idulfitri. Rasanya, kuliner lebaran belum lengkap tanpa kehadirannya. Nah, buat kamu yang ingin menyemarakkan meja makan dengan kuliner lebaran super lengkap, yuk simak resep sayur ketupat a la Masak Apa Hari Ini yang enak namun sangat mudah dibuat. Sayur ketupat lebaran di tiap daerah berbeda. 
+
+Gimana nih? Mudah bukan? Itulah cara membuat sayur ketupat labu siam yang bisa anda praktikkan di rumah. Selamat mencoba!
